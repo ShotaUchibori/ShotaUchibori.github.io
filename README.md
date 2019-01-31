@@ -1,1 +1,1 @@
-# ShotaUchibori.githubaaaaaaaaa.io
+# ShotaUchibori.github.io
